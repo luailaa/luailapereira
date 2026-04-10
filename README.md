@@ -58,8 +58,8 @@ Busco minha primeira oportunidade como **estagiária na área de dados**, com fo
 
 ## 📫 Contato
 
-* 💼 LinkedIn: (coloque seu link aqui)
-* 📧 Email: (coloque seu email aqui)
+* 💼 LinkedIn: ([coloque seu link aqui](https://www.linkedin.com/in/luaila-pereira-a536b1272/))
+* 📧 Email: (luailaassis@gmail.com)
 
 ---
 
